@@ -1,3 +1,3 @@
 # hello-world
-что за хуйня
-Я Максим проживаю в Казахстане салам алейкум бля ничего не знаю ничего не умею пытаюсь научиться,хочу денег и пиццы
+what is this
+my names maxim im don't understad who what and who and im want pizza and money
